@@ -1,1 +1,0 @@
-# Abdulhalim-acar.github.io
